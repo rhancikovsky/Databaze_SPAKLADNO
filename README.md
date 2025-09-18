@@ -2,3 +2,4 @@
 
 
 pozdrav
+nemam rad cerny zmrdy
