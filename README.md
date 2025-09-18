@@ -2,4 +2,4 @@
 
 
 pozdrav
-nemam rad cerny zmrdy
+CHRAPKO MILUJE FEMBOYE
